@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MOOY881020MMCJRS00
+MOOY881020MMCJRS00
